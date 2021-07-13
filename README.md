@@ -1,1 +1,0 @@
-# nederlandse-rechtstaat-met-geen-enkel-recht-op-een-menselijk-leven
